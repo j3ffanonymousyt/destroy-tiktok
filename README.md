@@ -1,8 +1,4 @@
-# DESTROY TIK TOK
+# To join Team anti-tik tok you should:
 
-# Why we shall get rid of tik tok.
-1. Filled with weird people
-2. Spams you with notifications
-3. Lies
-4. Hard to use
-5. It's gay
+1. Subscribe to J3ff Anonymous
+2. Comment on J3ff Anonymous's First YouTube Video that you want to join.
